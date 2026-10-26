@@ -26,6 +26,6 @@ Move mid-month or midweek (cheaper truck and mover rates). Get free boxes from s
 
 ## Want the printable planner?
 
-The **Moving Checklist and Budget Planner** has the budget tracker, 8-week countdown, address-change list, room-by-room box log and moving-day plan: https://spectre5.gumroad.com/l/PLACEHOLDER ($6)
+The **Moving Checklist and Budget Planner** has the budget tracker, 8-week countdown, address-change list, room-by-room box log and moving-day plan: https://payhip.com/b/U5l4b ($6)
 
 More guides: https://patreon.com/123black
